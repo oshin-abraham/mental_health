@@ -1,0 +1,1 @@
+The tech industry is fast-paced, innovative, and highly competitive. While these aspects drive growth and creativity, they also bring unique challenges that can affect mental health. This repository is a resource hub aimed at raising awareness, reducing stigma, and providing actionable support for mental well-being in the tech community.
